@@ -69,11 +69,11 @@
          
          
          
-         ![image](https://user-images.githubusercontent.com/85820553/128575943-cc76f127-2038-40cf-802e-c78ce0ea68bc.png)
+ ![image](https://user-images.githubusercontent.com/85820553/128575943-cc76f127-2038-40cf-802e-c78ce0ea68bc.png)
 
 
          
-         ![image](https://user-images.githubusercontent.com/85820553/128575783-bfab4ca9-9589-4219-b921-138230fbe145.png)
+ ![image](https://user-images.githubusercontent.com/85820553/128575783-bfab4ca9-9589-4219-b921-138230fbe145.png)
          
          
          
